@@ -21,7 +21,7 @@ Some will be more concerned with making rules (leaders) and others with followin
 
 http://en.wikipedia.org/wiki/Business_rule
 
-Jay's #NewRules Holy Grail Magna Carter Campaign  circa 2013
+Jay Z's #NewRules Holy Grail Magna Carter Campaign  circa 2013
 
 instiutionalism
 
