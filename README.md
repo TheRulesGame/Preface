@@ -1,7 +1,7 @@
 ##The Rules Game
 
 ###Preface
-(Commentary about the Game from the original authors.)
+####(Commentary about the Game from the original authors.)
 =======
 
 
