@@ -20,5 +20,8 @@ Some will be more concerned with making rules (leaders) and others with followin
 ####References, Inspirations
 
 http://en.wikipedia.org/wiki/Business_rule
+
 Jay's #NewRules Holy Grail Magna Carter Campaign  circa 2013
+
 instiutionalism
+
